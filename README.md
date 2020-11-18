@@ -1,1 +1,1 @@
-# zno_-knowledge
+# zno_knowledge
